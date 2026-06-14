@@ -130,7 +130,7 @@ GitHub:
 https://github.com/NagasaiAdepu
 
 LinkedIn:
-(Add your LinkedIn profile link here)
+www.linkedin.com/in/nagasai-adepu-290b4a34b
 
 ---
 
